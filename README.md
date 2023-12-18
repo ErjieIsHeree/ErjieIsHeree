@@ -5,4 +5,4 @@ pues los míos creo que son el blanco y el negro jaja.</p>
 <hr/>
 <p>Espero que os gusten mis trabajitos, cualquier reto que me queráis proponer os dejo aquí para que me contactéis:</p>
 <p>✉Email: erjie.xia@gmail.com</p>
-<p>Linkedin: <a href="https://www.linkedin.com/in/erjie-xia">https://www.linkedin.com/in/erjie-xia</a></p>
+<p>Linkedin: <a href="https://www.linkedin.com/in/erjie-xia-5b50b72a6/">https:https://www.linkedin.com/in/erjie-xia-5b50b72a6/</a></p>
